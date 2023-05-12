@@ -1,1 +1,1 @@
-My favorite band is Phish.
+My favorite band is Phish. They are the best.
